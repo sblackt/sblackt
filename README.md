@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @sblackt
+- 👋 Hi, I’m Steve - @sblackt
 - 👀 I’m a product design team leader living 👨🏼‍🌾 rurally in Ontario, Canada.
 - 🌱 I’m currently building a fence for our goat kids 🐐 that will be arriving in the spring!
 - 💞️ I’m looking to talk about how process and people can create great things
