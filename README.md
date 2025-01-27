@@ -1,4 +1,4 @@
 - 👋 Hi, I’m Steve - @sblackt
 - 👀 I’m a product design team leader living 👨🏼‍🌾 rurally in Ontario, Canada.
-- 🌱 I’m currently building a fence for our goat kids 🐐 that will be arriving in the spring!
-- 💞️ I’m looking to talk about how process and people can create great things
+- 🌱 I live on a small farm with goats, chickens, ducks and a market garden.
+- 📻 I am a ham radio operator and do lots of experimentation in this arena.
